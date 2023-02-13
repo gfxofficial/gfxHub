@@ -2,7 +2,8 @@
 🔥 gfx. Official 🔥
 </p>
 
-🥶 Discord: [Add Me](https://discord.gg/AF4QFUWK) 
+🥶 Discord: [Add Me](https://discord.gg/AF4QFUWK)
+
 😘 gfxHub: [Join](https://discord.gg/m7SBNXmxvN)
 
 ## 🔥 Partners
