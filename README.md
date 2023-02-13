@@ -15,6 +15,6 @@
 
 
 ## 😊 Links
-⚫ GitHub: [Click Here](https://github.com/ohheygfx/gfxHub)
-🔴 YouTube: [Click Here](https://youtube.com/@ohheygfx)
+⚫ GitHub: [Click Here](https://github.com/ohheygfx/gfxHub)\
+🔴 YouTube: [Click Here](https://youtube.com/@ohheygfx)\
 🟣 TikTok: [Click Here](https://tiktok.com/@gfxhub_ua)
